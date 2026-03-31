@@ -1,4 +1,4 @@
-# Digital-literacy-projec
+# Digital-literacy-project
 
 
 
